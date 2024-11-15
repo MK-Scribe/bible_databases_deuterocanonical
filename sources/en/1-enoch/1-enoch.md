@@ -170,25 +170,25 @@ All the days of their life.
 
 
 
-**[22:1]** And thence I went to another place, and he showed me in the west ⌈another⌉ great and high mountain [and] of hard rock. 
+**[22:1]** And thence I went to another place, and he showed me in the west another great and high mountain and of hard rock. 
 
- E 
+ **E**
 
-**[22:2]** And there was in it †four† hollow places, deep and wide and very smooth. †How† smooth are the hollow places and deep and dark to look at. 
+**[22:2]** And there was in it four hollow places, deep and wide and very smooth. How smooth are the hollow places and deep and dark to look at. 
 
-Gg 
+**Gg** 
 
-**[22:2]** And there were †four† hollow places in it, deep and very smooth: †three† of them were dark and one bright; and there was a fountain of water in its midst. And I said: '†How† smooth are these hollow places, and deep and dark to view.' 
+**[22:2]** And there were four hollow places in it, deep and very smooth: three of them were dark and one bright; and there was a fountain of water in its midst. And I said: 'How smooth are these hollow places, and deep and dark to view.' 
 
  
 
 **[22:3]** Then Raphael answered, one of the holy angels who was with me, and said unto me: 'These hollow places have been created for this very purpose, that the spirits of the souls of the dead should assemble therein, yea that all the souls of the children of men should assemble here. And these places have been made to receive them till the day of their judgement and till their appointed period ⌈till the period appointed⌉, till the great judgement (comes) upon them.' 
 
- E 
+ **E** 
 
 **[22:5]** I saw the spirits of the children of men who were dead, and their voice went forth to heaven and made suit. **[22:6]** Then I asked Raphael the angel who was with me, and I said unto him: 'This spirit--whose is it whose voice goeth forth and maketh suit?' 
 
- Gg 
+ **Gg** 
 
 **[22:5]** I saw (the spirit of) a dead man making suit, and his voice went forth to heaven and made suit. **[22:6]** And I asked Raphael the angel who was with me, and I said unto him: 'This spirit which maketh suit, whose is it, whose voice goeth forth and maketh suit to heaven?' 
 
@@ -196,43 +196,37 @@ Gg 
 
 **[22:7]** And he answered me saying: 'This is the spirit which went forth from Abel, whom his brother Cain slew, and he makes his suit against him till his seed is destroyed from the face of the earth, and his seed is annihilated from amongst the seed of men.' 
 
-E 
+**E** 
 
-**[22:8]** Then I asked regarding it, and regarding all the hollow places: 'Why as one separated from the other?'
+**[22:8]** Then I asked regarding it, and regarding all the hollow places: 'Why is one separated from the other?'
 
-**[22:9]** And he answered me and said unto me: 'These three have been made that the spirits of the dead might be separated. And such a division has been made 〈for〉 the spirits of the righteous, in which there as the bright spring of water. **[22:10]** And such has 
+**[22:9]** And he answered me and said unto me: 'These three have been made that the spirits of the dead might be separated. And such a division has been made for the spirits of the righteous, in which there is the bright spring of water. **[22:10]** And such has been made for sinners when they die and are buried in the earth and judgement has not been executed on them in their lifetime. **[22:11]** Here their spirits shall be set apart in this great pain till the great day of judgement and punishment and torment of those who curse for ever, and retribution for their spirits. There He shall bind them for ever. **[22:12]** And such a division has been made for the spirits of those who make their suit, who make disclosures concerning their destruction, when they were slain in the days of the sinners. **[22:13]** Such has been made for the spirits of men who were not righteous but sinners, who were complete in transgression, and of the transgressors. they shall be companions: but their spirits shall not be slain in the day of judgement nor shall they be raised from thence. **[22:14]** Then I blessed the Lord of glory and said: 'Blessed be my Lord, the Lord of righteousness, who ruleth for ever.' 
 
-Gg 
+**Gg** 
 
 **[22:8]** Then I asked regarding all the hollow places: 'Why is one separated from the other?'
 
-**[22:9]** And he answered me saying: 'These three have been made that the spirits of the dead might be separated. And this division has been made for the spirits of the righteous, in which there is the bright spring of water. **[22:10]** And this has been made for sinners 
+**[22:9]** And he answered me saying: 'These three have been made that the spirits of the dead might be separated. And this division has been made for the spirits of the righteous, in which there is the bright spring of water. **[22:10]** And this has been made for sinners when they die and are buried in the earth and judgement has not been executed upon them in their lifetime. **[22:11]** Here their spirits shall be set apart in this great pain, till the great day of judgement, scourgings, and torments of the accursed for ever, so that (there maybe) retribution for their spirits. There He shall bind them for ever. **[22:12]** And this division has been made for the spirits of those who make their suit, who make disclosures concerning their destruction, when they were slain in the days of the sinners. **[22:13]** And this has been made for the spirits of men who shall not be righteous but sinners, who are godless, and of the lawless they shall be companions: but their spirits shall not be punished in the day of judgement nor shall they be raised from thence. **[22:14]** Then I blessed the Lord of Glory and said: 'Blessed art Thou, Lord of righteousness, who rulest over the world.'
 
 
 
-   
-
-E 
-
-been made for sinners when they die and are buried in the earth and judgement has not been executed on them in their lifetime. **[22:11]** Here their spirits shall be set apart in this great pain till the great day of judgement and punishment and torment of those who †curse† for ever, and retribution for their spirits. There He shall bind them for ever. **[22:12]** And such a division has been made for the spirits of those who make their suit, who make disclosures concerning their destruction, when they were slain in the days of the sinners. **[22:13]** Such has been made for the spirits of men who were not righteous but sinners, who were complete in transgression, and of the transgressors. they shall be companions: but their spirits shall not be slain in the day of judgement nor shall they be raised from thence. **[22:14]** Then I blessed the Lord of glory and said: 'Blessed be my Lord, the Lord of righteousness, who ruleth for ever.' 
-
-Gg 
-
-when they die and are buried in the earth and judgement has not been executed upon them in their lifetime. **[22:11]** Here their spirits shall be set apart in this great pain, till the great day of judgement, scourgings, and torments of the accursed for ever, so that (there maybe) retribution for their spirits. There He shall bind them for ever. **[22:12]** And this division has been made for the spirits of those who make their suit, who make disclosures concerning their destruction, when they were slain in the days of the sinners. **[22:13]** And this has been made for the spirits of men who shall not be righteous but sinners, who are godless, and of the lawless they shall be companions: but their spirits shall not be punished in the day of judgement nor shall they be raised from thence. **[22:14]** Then I blessed the Lord of Glory and said: 'Blessed art Thou, Lord of righteousness, who rulest over the world.'
+**[23:1]** From thence I went to another place to the west of the ends of the earth. **[23:2]** And I saw a burning fire which ran without resting, and paused not from its course day or night but (ran) regularly. **[23:3]** And I asked saying: 'What is this which rests not?' **[23:4]** Then Raguel, one of the holy angels who was with me, answered me and said unto me: 'This course of fire which thou hast seen is the fire in the west which persecutes all the luminaries of heaven.'
 
 
 
-**[23:1]** From thence I went to another place to the west of the ends of the earth. **[23:2]** And I saw a ⌈⌈burning⌉⌉ fire which ran without resting, and paused not from its course day or night but (ran) regularly. **[23:3]** And I asked saying: 'What is this which rests not?' **[23:4]** Then Raguel, one of the holy angels who was with me, answered me ⌈⌈and said unto me⌉⌉: 'This course ⌈of fire⌉ ⌈⌈which thou hast seen⌉⌉ is the fire in the west which †persecutes† all the luminaries of heaven.'
+**[24:1]** And from thence I went to another place of the earth, and he showed me a mountain range of fire which burnt day and night. **[24:2]** And I went beyond it and saw seven magnificent mountains all differing each from the other, and the stones (thereof) were magnificent and beautiful, magnificent as a whole, of glorious appearance and fair exterior: three towards the east, one founded on the other, and three towards the south, one upon the other, and deep rough ravines, no one of which joined with any other. **[24:3]** And the seventh mountain was in the midst of these, and it excelled them in height, resembling the seat of a throne: and fragrant trees encircled the throne. **[24:4]** And amongst them was a tree such as I had never yet smelt, neither was any amongst them nor were others like it: it had a fragrance beyond all fragrance, and its leaves and blooms and wood wither not for ever: and its fruit is beautiful, and its fruit resembles the dates of a palm. **[24:5]** Then I said: 'How beautiful is this tree, and fragrant, and its leaves are fair, and its blooms very delightful in appearance.' **[24:6]** Then answered Michael, one of the holy and honoured angels who was with me, and was their leader.
 
 
 
-**[24:1]** ⌈⌈And from thence I went to another place of the earth⌉⌉, and he showed me a mountain range of fire which burnt ⌈⌈day and night⌉⌉. **[24:2]** And I went beyond it and saw seven magnificent mountains all differing each from the other, and the stones (thereof) were magnificent and beautiful, magnificent as a whole, of glorious appearance and fair exterior: ⌈⌈three towards⌉⌉ the east, ⌈⌈one⌉⌉ founded on the other, and three towards the south, one upon the other, and deep rough ravines, no one of which joined with any other. **[24:3]** And the seventh mountain was in the midst of these, and it excelled them in height, resembling the seat of a throne: and fragrant trees encircled the throne. **[24:4]** And amongst them was a tree such as I had never yet smelt, neither was any amongst them nor were others like it: it had a fragrance beyond all fragrance, and its leaves and blooms and wood wither not for ever: and its fruit ⌈⌈is beautiful, and its fruit⌉⌉ resembles the dates of a palm. **[24:5]** Then I said: '⌈How⌉ beautiful is this tree, and fragrant, and its leaves are fair, and its blooms ⌈⌈very⌉⌉ delightful in appearance.' **[24:6]** Then answered Michael, one of the holy ⌈⌈and honoured⌉⌉ angels who was with me, and was their leader.
+**[25:1]** And he said unto me: 'Enoch, why dost thou ask me regarding the fragrance of the tree, and why dost thou wish to learn the truth?' Then I answered him saying: 'I wish to know about everything, but especially about this tree.' And he answered saying: 'This high mountain which thou hast seen, whose summit is like the throne of God, is His throne, where the Holy Great One, the Lord of Glory, the Eternal King, will sit, when He shall come down to visit the earth with goodness. **[25:4]** And as for this fragrant tree no mortal is permitted to touch it till the great judgement, when He shall take vengeance on all and bring (everything) to its consummation for ever. It shall then be given to the righteous and holy. **[25:5]** Its fruit shall be for food to the elect: it shall be transplanted to the holy place, to the temple of the Lord, the Eternal King. 
 
-
-
-**[25:1]** And he said unto me: 'Enoch, why dost thou ask me regarding the fragrance of the tree, and ⌈why⌉ dost thou wish to learn the truth?' Then I answered him ⌈⌈saying⌉⌉: 'I wish to know about everything, but especially about this tree.' And he answered saying: 'This high mountain ⌈⌈which thou hast seen⌉⌉, whose summit is like the throne of God, is His throne, where the Holy Great One, the Lord of Glory, the Eternal King, will sit, when He shall come down to visit the earth with goodness. **[25:4]** And as for this fragrant tree no mortal is permitted to touch it till the great judgement, when He shall take vengeance on all and bring (everything) to its consummation for ever. It shall then be given to the righteous and holy. **[25:5]** Its fruit shall be for food to the elect: it shall be transplanted to the holy place, to the temple of the Lord, the Eternal King. 
-
-**[25:6]** Then shall they rejoice with joy and be glad, And into the holy place shall they enter; And its fragrance shall be in their bones, And they shall live a long life on earth, Such as thy fathers lived: And in their days shall no ⌈⌈sorrow or⌉⌉ plague Or torment or calamity touch them.' 
+**[25:6]** Then shall they rejoice with joy and be glad, 
+And into the holy place shall they enter; 
+And its fragrance shall be in their bones, 
+And they shall live a long life on earth, 
+Such as thy fathers lived: 
+And in their days shall no sorrow or plague 
+Or torment or calamity touch them.' 
 
 **[25:7]** Then blessed I the God of Glory, the Eternal King, who hath prepared such things for the righteous, and hath created them and promised to give to them.
 

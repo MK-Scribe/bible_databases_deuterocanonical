@@ -8,7 +8,7 @@ And appear in the strength of His might from the heaven of heavens.
 
 **[1:5]** And all shall be smitten with fear 
 And the Watchers shall quake, 
-And great fear and trembling shall seize them unto the ends of the earth.
+And great fear and trembling shall seize them unto the ends of the earth. 
 
 **[1:6]** And the high mountains shall be shaken, 
 And the high hills shall be made low, 

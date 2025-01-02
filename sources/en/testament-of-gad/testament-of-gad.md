@@ -1,4 +1,4 @@
-# The Testament of Gad / Testaments of the Twelve Patriarchs 
+# The Testament of Gad
 
 
 

@@ -576,11 +576,11 @@
 
 **[9:43]** Sir, said I, I would know what the building of this tower signifies; as also I would be informed concerning this rock, and this gate; 
 
-**[9:44]** And concerning the mountains, and the virgins, and the stones that did rise out of the deep, and were not cut, but put into the building just as they came forth; and why the ten stones were first laid in the foundation; then the twenty-five, then thirty-five; then forty? 
+**[9:44]** And concerning the mountains, and the virgins, and the stones that did rise out of the deep, and were not cut, but put into the building just as they came forth; and why the ten stones were first laid in the foundation; then the twenty-five, then thirty-five, then forty? 
 
 **[9:45]** Also concerning those stones that were put into the building, and again taken out, and carried back into their places? Fulfil, I pray, the desire of my soul as to all these things, and manifest all unto me. 
 
-**[9:46]** And he said unto me; If thou shalt not be dull, thou shall know all, and shall see all the other things that are about to happen in this, tower: and shall understand diligently all these similitudes. 
+**[9:46]** And he said unto me; If thou shalt not be dull, thou shall know all, and shall see all the other things that are about to happen in this tower: and shall understand diligently all these similitudes. 
 
 **[9:47]** And after a few days we came into the same place where we had sat before; and he said unto me, Let us go unto the tower; for the Lord of it will come and examine it. 
 
@@ -602,7 +602,7 @@
 
 **[9:56]** But the round ones were not put into the building, because they were hard, and it would have required too much time to cut them but they were placed about the tower, as if they should hereafter be cut square, and put into the building; for they were very white. 
 
-**[9:57]** When he who was chief in dignity, and lord of the whole tower saw this, he called to him the shepherd that was with me, and gave him the stones that were rejected and laid about the tower, and said unto him; cleanse these stones with all care, and fit them into the building of the tower, that they may agree with the rest; but those that will not suit with the rest, cast away afar off from the tower. 
+**[9:57]** When he who was chief in dignity, and lord of the whole tower saw this, he called to him the shepherd that was with me, and gave him the stones that were rejected and laid about the tower, and said unto him, Cleanse these stones with all care, and fit them into the building of the tower, that they may agree with the rest; but those that will not suit with the rest, cast away afar off from the tower. 
 
 **[9:58]** When he had thus commanded him, he departed, with all those that came with him to the tower but those virgins still stood about the tower to keep it. 
 
@@ -610,7 +610,7 @@
 
 **[9:60]** And I said, Sir, how will they be able to fill the same place, when they shall be so much cut away? He answered; They that shall be found too little shall be put into the middle of the building, and the greater shall be placed without, and keep them in. 
 
-**[9:61]** When he had said thus unto me, he added; Let us go, and after three days we will return, and I will put these stones, being cleansed, into the tower. 
+**[9:61]** When he had said thus unto me, he added, Let us go, and after three days we will return, and I will put these stones, being cleansed, into the tower. 
 
 **[9:62]** For all these that are about the tower must be cleansed, lest the master of the house chance to come upon the sudden, and find those which are about the tower unclean; and be so exasperated that these stones should never be put into the building of this tower, and I shall be looked upon to have been unmindful of my master's commands. 
 
@@ -640,13 +640,13 @@
 
 **[9:75]** He replied, Canst thou think of nothing then for these? I answered, Sir, I understand not this art; neither am I a stone-cutter, nor can I tell anything. 
 
-**[9:76]** And he said, seest thou not that they are very round? Now to make them square, I must cut off a great deal from them; howbeit, it is necessary that some of these should go into the building of the tower. 
+**[9:76]** And he said, Seest thou not that they are very round? Now to make them square, I must cut off a great deal from them; howbeit, it is necessary that some of these should go into the building of the tower. 
 
 **[9:77]** I answered; If it be necessary, why do you perplex yourself, and not rather choose, if you have any choice among them, and fit them into the building. 
 
 **[9:78]** Upon this he chose out the largest and brightest, and squared them; which, when he had done the virgins took them up, and fitted them into the building. 
 
-**[9:79]** And the rest that remained were carried back into the same field from which they were taken; howbeit, they were not cast away; because, said he, there is yet a little wanting to this tower, which is to be built; and perhaps the Lord will have these stones fitted into this building, because they are exceeding white. 
+**[9:79]** And the rest that remained were carried back into the same field from which they were taken; howbeit, they were not cast away; because, said he, There is yet a little wanting to this tower, which is to be built; and perhaps the Lord will have these stones fitted into this building, because they are exceeding white. 
 
 **[9:80]** Then there were called twelve very stately women, clothed with a black garment, girded, and their shoulders free, and their hair loose. These seemed to me to be country women. 
 
@@ -680,13 +680,13 @@
 
 **[9:95]** So I remained with those virgins: now they were cheerful and courteous unto me; especially the four, which seemed to be the chieftest among them. 
 
-**[9:96]** Then those virgins said unto me, that shepherd will not return hither to-day. I said unto them, What then shall I do? They answered, Tarry for him till the evening, if perhaps he may come and speak with thee; but if not, yet thou shalt continue with us till he does come. 
+**[9:96]** Then those virgins said unto me, That shepherd will not return hither to-day. I said unto them, What then shall I do? They answered, Tarry for him till the evening, if perhaps he may come and speak with thee; but if not, yet thou shalt continue with us till he does come. 
 
 **[9:97]** I said unto them, I will tarry for him till evening; but if he comes not by that time, I will go home, and return hither again the next morning. 
 
 **[9:98]** They answered me, As thou art delivered unto us, thou mayest not depart from us. I said, Where shall I tarry? 
 
-**[9:99]** They replied, Thou shalt sleep with us as a brother, not as a husband; for thou art our brother, and we are ready from henceforth to dwell with thee; for thou art very dear to as. 
+**[9:99]** They replied, Thou shalt sleep with us as a brother, not as a husband; for thou art our brother, and we are ready from henceforth to dwell with thee; for thou art very dear to us. 
 
 **[9:100]** Howbeit I was ashamed to continue with them. But she that seemed to be the chieftest amongst them, embraced me, and began to kiss me. And the rest when they saw that I was kissed by her, began also to kiss me as a brother; and led me about the tower, and played with me. 
 
@@ -706,15 +706,15 @@
 
 **[9:108]** He answered, I will do all as thou wouldst have me, nor will I hide any thing from thee. 
 
-**[9:109]** First of all, Sir, said I, tell me, what this rock and this gate denote? Hearken, said he; this rock, and this gate, are the Son of God. I replied, Sir, how can that be; seeing the rock is old, but the gate new? 
+**[9:109]** First of all, Sir, said I, tell me, what this rock and this gate denote? Hearken, said he; This rock, and this gate, are the Son of God. I replied, Sir, how can that be, seeing the rock is old, but the gate new? 
 
-**[9:110]** Hear, said he, O foolish man! and understand. The Son of God is indeed more ancient than any creature; insomuch that he was in council with his Father at the creation oft all things. 
+**[9:110]** Hear, said he, O foolish man! and understand. The Son of God is indeed more ancient than any creature; insomuch that he was in council with his Father at the creation of all things. 
 
 **[9:111]** But the gate is therefore new, because he appeared in the last days in the fullness of time; that they who shall attain unto salvation, may by it enter into the kingdom of God. 
 
 **[9:112]** You have seen, said he, those stones which were carried through the gate, how they were placed in the building of the tower; but that those which were not carried through the gate, were sent away into their own places? 
 
-**[9:113]** I answered, sir, I saw it. Thus, said he, no man shall enter into the kingdom of God, but he who shall take upon him the name of the Son of God. 
+**[9:113]** I answered, Sir, I saw it. Thus, said he, no man shall enter into the kingdom of God, but he who shall take upon him the name of the Son of God. 
 
 **[9:114]** For if you would enter into any city, and that city should he encompassed with a wall, and had only one gate, could you enter into that city except by that gate? 
 
@@ -728,7 +728,7 @@
 
 **[9:119]** Sir, said I, I saw them. He answered, that tall man was the Son of God; and those six were his angels of most eminent dignity, which stand about him on the right hand and on the left. 
 
-**[9:120]** Of these excellent angels none comes in unto God without him. He added, Whosoever there, fore shall not take upon him his name, he shall nor enter into the kingdom of God. 
+**[9:120]** Of these excellent angels none comes in unto God without him. He added, Whosoever therefore shall not take upon him his name, he shall nor enter into the kingdom of God. 
 
 **[9:121]** Then I said, What is this tower? This, said he, is the church. And what, Sir, are these virgins? He said unto me, These are the holy spirits, for no man can enter into the kingdom of God, except these clothe him with their garment, 
 
@@ -744,7 +744,7 @@
 
 **[9:127]** And I said, Sir, why then were those stones cast away which were rejected, seeing they also were carried through the gate, and delivered by the hands of these virgins into the building of this tower? 
 
-**[9:128]** Seeing, said he thou takest care to inquire diligently into all things, hear also concerning those stones which were rejected. All these received the name of the Son of God, and with that the power of these virgins 
+**[9:128]** Seeing, said he thou takest care to inquire diligently into all things, hear also concerning those stones which were rejected. All these received the name of the Son of God, and with that the power of these virgins.
 
 **[9:129]** Having therefore received these spirits, they were perfected, and brought into the number of the servants of God; and they began to be one body, and to have one garment, for they were endued with the same righteousness, which they alike exercised. 
 
@@ -784,7 +784,7 @@
 
 **[9:147]** The next thirty-five, are the prophets and ministers of the Lord. And the forty, are the Apostles and doctors of the preaching of the Son of God. 
 
-**[9:148]** And I said, sir, why did the virgins put even those stones into the building after they were carried through the gate? And he said, Because these first carried those spirits, and they departed not one from the other, neither the men from the spirits, nor the spirits from the men: 
+**[9:148]** And I said, Sir, why did the virgins put even those stones into the building after they were carried through the gate? And he said, Because these first carried those spirits, and they departed not one from the other, neither the men from the spirits, nor the spirits from the men: 
 
 **[9:149]** But the spirits were joined to those men even to the day of their death; who if they had not had these spirits with them, they could not have been useful to the building of this tower. 
 
